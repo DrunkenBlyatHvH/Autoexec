@@ -1,0 +1,2 @@
+# Autoexec
+CS GO AUTOEXEC
